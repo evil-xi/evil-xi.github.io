@@ -10,6 +10,10 @@ x is 24 and i is 9
 
 24+9=33
 
+fact 3:
+
+xi jin ping is 42 in the New Bible
+
 
 
 opinion 1:
@@ -18,15 +22,22 @@ he is jews
 
 because of 1 2
 
+opinion 2:
+
+he is the jews who hate god and christ(born in 10.25)
+
+because of 3
+
 
 
 FACT PART 2 - PICTURE
 
 fact 1:
 
-科星疫苗 made by 中国生物
+科興疫苗 made by 中国生物
 
 [picture](https://raw.githubusercontent.com/evil-xi/evil-xi.github.io/main/中国生物.webp)
+
 
 fact 2:
 
@@ -50,7 +61,7 @@ opinion 2:
 
 russia dictactor also make a statement on america football can not be played in russia
 
-maybe russia dictactor donot have so much trust in xi jin ping
+maybe russia dictactor donot have so much trust in xi jin ping,but have good relationship with xi jin ping's daughter
 
 because of 2
 
@@ -70,6 +81,10 @@ fact 3:
 
 thailand recently open passport to china
 
+fact 4:
+
+DaTang is also known as MaxTang which is a PC manufactor,and it has good relation with AMD,Intel.
+
 
 
 opinion 1:
@@ -82,4 +97,4 @@ opinion 2:
 
 xi jin ping actually in high place
 
-because of 3
+because of 3 4
